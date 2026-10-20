@@ -1,0 +1,2 @@
+# premium-leather-carve-001-leather-carving-floral-design
+Tired of scattered sketches and lost inspiration for your leather carving floral designs?  The Leather Carving Floral Design Studio Notion template centralizes every floral pattern, material list, and project timeline into one organized workspace. It eliminates the chaos of paper notes and multiple apps, so you can focus on perfecting your carving
